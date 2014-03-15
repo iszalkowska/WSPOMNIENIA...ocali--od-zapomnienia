@@ -1,7 +1,7 @@
 WSPOMNIENIA...ocali--od-zapomnienia
 ===================================
 Mój kochany wcześniaczek
-![MICHAŁ](http://nk.pl/#profile/30993854/gallery#!album=2&viewer=photo/28706125/14
+![MICHAŁ]((http://nk.pl/profile/30993854/gallery#!album=2&viewer=photo/28706125/14)
 
 ##Dla Michasia....
 
