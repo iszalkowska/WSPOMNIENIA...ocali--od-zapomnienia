@@ -2,7 +2,7 @@ WSPOMNIENIA...ocali--od-zapomnienia
 ===================================
 Mój kochany wcześniaczek
 
-![MICHAŁ]((http://nk.pl/profile/30993854/gallery#!album=2&viewer=photo/28706125/14)
+![MICHAŁ](http://nk.pl/profile/30993854/gallery#!album=2&viewer=photo/28706125/14)
 
 ##Dla Michasia....
 
@@ -27,16 +27,4 @@ Tatuś dużo pracuje, odwiedza cię wieczorkami, nie może robić tego zbyt czę
 Cieszymy się każda kolejną godziną, nadzieja znów dodaje mi skrzydeł...wszyscy dookoła powtarzają jak blisko byłeś od tego by przekroczyć próg z za którego nie ma już powrotu...CRP powoli spada a ty wyglądasz coraz lepiej. Morfologia jednak nie wygląda dobrze i pan dr decyduje się na przetoczenie krwi.
 I znowu przechodzimy na salę poojomową nr 2...dni powoli mijają. 8.12 pan dr decyduje o tym aby przenieść cię z inkubatora do łóżeczka...to wielka chwila...radzisz sobie świetnie...Twoje malutkie ciałko zdążyło się przyzwyczaić do zmiany temperatury dzięki godzinom spędzonym na mojej piersi...te piękne chwile kiedy byliśmy tylko dla siebie. Wyglądasz prześlicznie, twoje pierwsze ubranka są w rozmiarze 46 .
 I znowu tą samą ścieżką wędrujemy na noworodki izolacyjne...nie mam zaufania do tego miejsca, ale nie mamy wyboru...wcześniaczki rodzą się każdego dnia a miejsc na OIOM brakuje. Pan dr zaczyna powoli sugerować, że może na święta będziemy już w domku ze swoim Jezuskiem....to będą najcudowniejsze święta synku ...Pan dr zleca wszystkie badania, ale morfologia znowu się pogarsza i konieczne jest kolejne przetoczenie krwi...dwa dni czekamy na nowe wyniki są dobre i słyszymy wreszcie po prawie 2 mc oczekiwania wiadomość, że możemy cię zabrać do domku. 
-Jest 19.12.2008, to najpiękniejszy dzień synku dla nas wszystkich...Wieziemy cię do domku jak małe jajeczko, tatuś jedzie powolutku a ty od razu zasypiasz. Babcia Krysia i dziadek Boguś są już w drodze, nie mogą się doczekać kiedy cię zobaczą... Maciuś „szaleje”, nie wierzy, że jesteś już  z nami ....na zawsze.
-
-                                               Twoja kochająca Cię do granic możliwości mama...
-
-LINKI dla mam wcześniaków
-
-[FUNDACJA WCZEŚNIAK][1]
-[1]: http://ccs.infospace.com/ClickHandler.ashx?ld=20140315&app=1&c=omigahosted&s=omigahosted&euip=188.124.170.164&pvaid=f8a21af1577345d081c0e532fce300d6&sid=72203997.1793333563569.1394910731&vid=72203997.1793333563569.1393675628.20&fcoi=417&fcop=topnav&fct.uid=008168bce59d498692c4bcbf65b70981&fpid=2&en=z65vpYxnH2mJBGUPa8rx31fpG%2fnJG4uf8xizVwnoh6EC5PLHgM01YpOkHOGVGb%2bG&du=www.wczesniak.pl&ru=http%3a%2f%2fwww.wczesniak.pl%2f&ap=1&coi=771&cop=main-title&npp=1&p=0&pp=0&ep=1&mid=9&hash=38F2BEC33B3131E6E419B643B1815C17
-[OPIEKA NAD WCZEŚNIAKIEM][2]
-[2]: http://ccs.infospace.com/ClickHandler.ashx?ld=20140315&app=1&c=omigahosted&s=omigahosted&euip=188.124.170.164&pvaid=f8a21af1577345d081c0e532fce300d6&sid=72203997.1793333563569.1394910731&vid=72203997.1793333563569.1393675628.20&fcoi=417&fcop=topnav&fct.uid=008168bce59d498692c4bcbf65b70981&fpid=2&en=z65vpYxnH2mJBGUPa8rx31fpG%2fnJG4uf8xizVwnoh6EC5PLHgM01YpOkHOGVGb%2bG&du=www.mamazone.pl%2fartykuly%2fmale-dziecko%2fwczesniak.aspx&ru=http%3a%2f%2fwww.mamazone.pl%2fartykuly%2fmale-dziecko%2fwczesniak.aspx&ap=4&coi=771&cop=main-title&npp=4&p=0&pp=0&ep=4&mid=9&hash=0986B7E54ABE65F0571F744258C503E3
-[Wcześniak, kto to taki???][3]
-[3]: http://ccs.infospace.com/ClickHandler.ashx?ld=20140315&app=1&c=omigahosted&s=omigahosted&euip=188.124.170.164&pvaid=f8a21af1577345d081c0e532fce300d6&sid=72203997.1793333563569.1394910731&vid=72203997.1793333563569.1393675628.20&fcoi=417&fcop=topnav&fct.uid=008168bce59d498692c4bcbf65b70981&fpid=2&en=z65vpYxnH2mJBGUPa8rx31fpG%2fnJG4uf8xizVwnoh6EC5PLHgM01YpOkHOGVGb%2bG&du=www.babyboom.pl%2fniemowleta%2fwczesniak%2fwczesniak_kto_to_taki.html&ru=http%3a%2f%2fwww.babyboom.pl%2fniemowleta%2fwczesniak%2fwczesniak_kto_to_taki.html&ap=6&coi=771&cop=main-title&npp=6&p=0&pp=0&ep=6&mid=9&hash=D5455A79BDC968449887435840AB3C05
-
+Jest 19.12.2008, to najpiękniejszy dzień synku dla nas wszystkich...Wieziemy cię do domku jak małe jajeczko, tatuś jedzie powolutku a ty od razu
