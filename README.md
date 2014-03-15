@@ -30,4 +30,7 @@ Jest 19.12.2008, to najpiękniejszy dzień synku dla nas wszystkich...Wieziemy c
 
                                                Twoja kochająca Cię do granic możliwości mama...
 
-.
+LINKI dla mam wcześniaków
+[FUNDACJA WCZEŚNIAK][1]
+[1]: http://ccs.infospace.com/ClickHandler.ashx?ld=20140315&app=1&c=omigahosted&s=omigahosted&euip=188.124.170.164&pvaid=f8a21af1577345d081c0e532fce300d6&sid=72203997.1793333563569.1394910731&vid=72203997.1793333563569.1393675628.20&fcoi=417&fcop=topnav&fct.uid=008168bce59d498692c4bcbf65b70981&fpid=2&en=z65vpYxnH2mJBGUPa8rx31fpG%2fnJG4uf8xizVwnoh6EC5PLHgM01YpOkHOGVGb%2bG&du=www.wczesniak.pl&ru=http%3a%2f%2fwww.wczesniak.pl%2f&ap=1&coi=771&cop=main-title&npp=1&p=0&pp=0&ep=1&mid=9&hash=38F2BEC33B3131E6E419B643B1815C17
+
