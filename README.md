@@ -1,0 +1,2 @@
+WSPOMNIENIA...ocali--od-zapomnienia
+===================================
